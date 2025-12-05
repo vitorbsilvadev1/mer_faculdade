@@ -1,1 +1,1 @@
-[](https://github.com/vitorbsilvadev1/mer_faculdade/blob/main/Captura%20de%20tela%202025-12-04%20211139.png)
+<img width="750" height="525" alt="Captura de tela 2025-12-04 211139" src="https://github.com/user-attachments/assets/d3041331-5c19-4509-bebf-eb68eb21623c" />
